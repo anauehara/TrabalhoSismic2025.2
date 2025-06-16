@@ -1,0 +1,1 @@
+# TrabalhoSismic2025.2
